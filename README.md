@@ -1,4 +1,4 @@
-⚠️ Disclaimer
+⚠️ Disclaimer ⚠️
 
 These notes are guidelines only and are not meant, by any means, to cover the complete scope for the ENCOR exam.
 Candidates are advised to supplement them with:
